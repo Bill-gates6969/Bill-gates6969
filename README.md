@@ -2,7 +2,7 @@
 
 - 👀 I’m interested in ( Coding ) 
 - 🌱 I’m currently learning ... 
-- 💞️ I’m looking to collaborate on ... Something...
+- 💞️ I’m looking to collaborate on ... Something... jk I am looking for collaboration on MTS MAPS its the new innovative navigator.
 - 📫 How to reach me ... On Weerakkodyavanka21@gmail.com
 
 <!---
