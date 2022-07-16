@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Bill-gates6969 (don't mind the name)
 
 - 👀 I’m interested in ( Coding ) 
-- 🌱 I’m currently learning ... 
+- 🌱 I’m currently learning ... Nothing I am learning nothing...
 - 💞️ I’m looking to collaborate on ... Something... jk I am looking for collaboration on MTS MAPS its the new innovative navigator.
 - 📫 How to reach me ... On Weerakkodyavanka21@gmail.com
 
